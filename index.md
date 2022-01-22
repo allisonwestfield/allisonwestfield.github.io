@@ -44,7 +44,7 @@
 (CM Punk / Eminem) [Aug 17, 2011]
 
 16. **Untitled** 
-17. (Kelly Kelly / Too Cool) [Aug 22, 2011]
+(Kelly Kelly / Too Cool) [Aug 22, 2011]
 
 17. **Untitled** 
 (Kofi Kingston / Too Cool) [Aug 25, 2011]
