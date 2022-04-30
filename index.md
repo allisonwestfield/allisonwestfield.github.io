@@ -1,7 +1,7 @@
-01. [**Lay-Cool Helmets**](https://allisonwestfield.bandcamp.com/track/lay-cool-helmets) 
+01. **Lay-Cool Helmets**
 (Kaval / Lay-Cool) [Oct 10, 2010] 
 
-02. [**Broken Voices**](https://allisonwestfield.bandcamp.com/track/broken-voices)
+02. **Broken Voices**
 (Drew McIntyre / Randy Orton) [Nov 10, 2010] 
 
 03. **The Brood's Domination** 
